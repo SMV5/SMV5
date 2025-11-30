@@ -11,4 +11,6 @@ Greetings!!! Im a french fella who directs tons of projects, i also code time to
 
  You shall check my BIGGEST project of all time i've started 4 years ago, including an update that released a few months ago entitled [FNF : Spirits Of Hell](https://gamebanana.com/mods/454199), a 2 hour long mod/fangame about a peculiar entity...
 
-Stay Tunned For More Folks!!!
+In my past and current experiences, i have coded for many projects, which you can find in my [Gamebanana Profile](https://gamebanana.com/members/1932949), i also have contributed in a tv archive website entitled [+2Télé](https://plus2tele.com/channels) where many of my findings can indeed be consulted beside my [Youtube Channel](https://www.youtube.com/@TeletoonIdent) that is!
+
+Stay tunned for more as my professional path is only growing.
